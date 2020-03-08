@@ -1,0 +1,2 @@
+# nopalggcok
+gada guna sebenarnyasi
